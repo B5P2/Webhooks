@@ -1,2 +1,4 @@
-hello fellas
-tips fedora
+Guess who's back
+Back again
+Shady's back
+Tell a friend
